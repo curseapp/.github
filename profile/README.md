@@ -1,0 +1,1 @@
+fighting the devil (SDA Informatika Zrt.)
